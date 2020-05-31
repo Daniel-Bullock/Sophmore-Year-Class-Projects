@@ -1,0 +1,3 @@
+You foolish mortals just can't be polite, can you? His eyelids flip back and a bright light envelops your entire vision... Oh it hurts so bad.....
+
+# Psych
